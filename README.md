@@ -22,7 +22,7 @@
 
 
                                                              
-  **`F1(DTI&F1 the movie)`  
+  **`F1(DTS & F1 the movie)`  
                      fight club.   mysterious skin.   
   ```500 days of summer```.
             ```8 mile.```**  
