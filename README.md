@@ -52,3 +52,12 @@ $\color{orange}{any⠀genres}$
 ***
 <img width="1000" height="490" alt="image" src="https://github.com/user-attachments/assets/1aad1d6f-ce55-4768-befb-ee2df59b9202" />
 
+***
+
+
+# $\color{orange}{DNI}$
+
+### com/proshipper . 
+### over 20 and iwec under 13 if idk u . 
+### homophobes .
+### radfems  .
