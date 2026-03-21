@@ -6,24 +6,24 @@
 
  
 
-*🌙  don't try to talk to me / afk*
+🌙  $\color{orange}{dont}$ *try to talk to me / afk*
   
  
   
   
-*⛔  use whispers to interact*
+⛔  *use* $\color{orange}{whispers}$ *to interact*
   
 
  
  
  
  ***
-# my favourites fandoms 
+# my $\color{orange}{favourites}$ fandoms 
 
 
                                                              
-  **`F1(DTS & F1 the movie)`  
-                     fight club.   mysterious skin.   
+**```F1⠀DTS⠀&⠀F1⠀themovie```**  
+                     **fight club.   mysterious skin.   
   ```500 days of summer```.
             ```8 mile.```**  
             
@@ -38,18 +38,9 @@
 
 
 ***
-# my favourites genres of music
+# my $\color{orange}{favourites}$ genres of music
 
 
-   **(heavy)(hard) rock and metal,** 
-
-   
- **hip hop,**    
- 
- 
-**jazz,**
- 
- 
- **classical, folk** 
+$\color{orange}{any⠀genres}$
 
 ***
