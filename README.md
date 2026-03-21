@@ -55,9 +55,9 @@ $\color{orange}{any⠀genres}$
 ***
 
 
-# $\color{orange}{DNI}$
+# $\color{orange}{DNI/IWEC}$
 
 ### comshipper . 
-### over 20 and iwec under 13 if idk u . 
+### over 20 and under 13 if idk u . 
 ### homophobes .
 ### radfems  .
