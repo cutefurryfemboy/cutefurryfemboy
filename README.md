@@ -21,15 +21,21 @@
 # my favourites fandoms 
 
 
-**```fight club```.mysterious skin.   
-```500 days of summer```.
+                                                             
+  **`F1(DTI&F1 the movie)`  
+                     fight club.   mysterious skin.   
+  ```500 days of summer```.
             ```8 mile.```**  
             
-  **hetalia.    undertale.    ```detroit.```    cry of fear.**
+  **hetalia.    undertale.    ```detroit.```  cry of fear.**
 
 
- **resident evil.    ```minecraft.```    BNA.   last of us.
-               "you".   dexter.   little nightmares.   ENA**
+        **resident evil.    ```minecraft.```    BNA.   last of us.
+                   "you".**     
+ 
+ 
+ **dexter.   little nightmares.   ENA**
+
 
 ***
 # my favourites genres of music
