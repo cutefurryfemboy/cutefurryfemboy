@@ -12,7 +12,7 @@
 
  
 
-🌙  $\color{orange}{dont}$ *try to talk to me / afk*
+🌙  $\color{orange}{dont}$ *try to talk with me / afk*
   
  
   
