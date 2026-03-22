@@ -59,3 +59,23 @@ $\color{orange}{any⠀genres}$
 ### homophobes .
 ### radfems  .
 ### racists  .
+
+
+
+
+
+***
+<img width="1000" height="490" alt="image" src="https://github.com/user-attachments/assets/f1ef101e-da9f-43bc-b1a5-b91d65a51f05" />
+
+
+***
+>kin-list
+
+
+>Oscar Piastri&Kimi Raikkonen (*f1*)
+
+
+>Batman (*DC Comics*)
+
+
+>Neil (*Tenet*)
