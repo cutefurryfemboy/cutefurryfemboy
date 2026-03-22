@@ -69,7 +69,7 @@ $\color{orange}{any⠀genres}$
 
 
 ***
->kin-list
+>kinlist
 
 
 >Oscar Piastri&Kimi Raikkonen (*f1*)
