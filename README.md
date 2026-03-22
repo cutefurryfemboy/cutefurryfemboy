@@ -20,9 +20,6 @@
 ⛔  *use* $\color{orange}{whispers}$ *to interact*
   
 
- 
- 
- 
  ***
 # my $\color{orange}{favourites}$ fandoms 
 
