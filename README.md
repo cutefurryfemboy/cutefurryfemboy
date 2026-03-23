@@ -21,7 +21,7 @@
   
 
  ***
-# my $\color{orange}{favourites}$ fandoms 
+# my $\color{orange}{main}$ fandoms 
 
 
                                                              
