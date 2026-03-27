@@ -78,4 +78,4 @@ $\color{orange}{any⠀genres}$
 >Elliot Alderson (*Mr.Robot*)
 
 
->Neil (*Tenet*)
+>Brandon Sullivan (*Shame*)
