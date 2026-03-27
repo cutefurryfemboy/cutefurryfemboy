@@ -75,7 +75,7 @@ $\color{orange}{any⠀genres}$
 >Oscar Piastri&Kimi Raikkonen (*f1*)
 
 
->Batman (*DC Comics*)
+>Elliot Alderson (*Mr.Robot*)
 
 
 >Neil (*Tenet*)
