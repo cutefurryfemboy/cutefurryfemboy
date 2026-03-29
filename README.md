@@ -78,4 +78,4 @@ $\color{orange}{any⠀genres}$
 >Elliot Alderson (*Mr.Robot*)
 
 
->Brandon Sullivan (*Shame*)
+>Mike Ehrmantraut (*Breaking Bad/Better Call Saul*)
