@@ -4,6 +4,8 @@
 
 
 
+
+
 <h1>$\color{orange}{the⠀list⠀will⠀be⠀expanded/changed⠀in⠀the⠀future}$</h1>
 
 *💬/🟢  U can try to talk me without whispers  !!maybe!! i'm not afk*
@@ -79,3 +81,12 @@ $\color{orange}{any⠀genres}$
 
 
 >Mike Ehrmantraut (*Breaking Bad/Better Call Saul*)
+
+
+
+
+![VIEWS](https://visitor-badge.laobi.icu/badge?page_id=cutefurryfemboy&color=orange&v=1)
+
+
+
+
