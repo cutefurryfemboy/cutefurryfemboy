@@ -85,7 +85,7 @@ $\color{orange}{any⠀genres}$
 
 
 
-![VIEWS](https://visitor-badge.laobi.icu/badge?page_id=cutefurryfemboy&color=orange&v=1)
+
 
 
 
