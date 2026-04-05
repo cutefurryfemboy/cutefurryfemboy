@@ -32,7 +32,7 @@
   ```500 days of summer```.
             ```8 mile.```**  
             
-  **hetalia.    undertale.    ```detroit.```  cry of fear.**
+  **hetalia.    undertale&deltarune    ```detroit.```  cry of fear.**
 
 
         **resident evil.    ```minecraft.```    BNA.   last of us.
