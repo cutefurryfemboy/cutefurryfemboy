@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<h1>$\color{orange}{DNC⠀ME}$</h1>
+<h1>$\color{orange}{DNC⠀}$</h1>
 
 
 
