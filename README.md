@@ -80,7 +80,7 @@ $\color{orange}{any⠀genres}$
 >kinlist
 
 
->Oscar Piastri&Kimi Raikkonen (*f1*)
+>Oscar Piastri&Kimi Raikkonen&Lance Stroll (*f1*)
 
 
 >Elliot Alderson (*Mr.Robot*)
