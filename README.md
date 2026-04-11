@@ -10,7 +10,7 @@
 
 # $\color{lightblue}{DNI/IWEC}$
 
-### comshipper . 
+
 ### over 20 and under 13 if idk u . 
 ### homophobes .
 ### radfems  .
