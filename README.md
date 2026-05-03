@@ -21,7 +21,7 @@
 >kinlist
 
 
->Oscar Piastri&Kimi Raikkonen&Lance Stroll (*f1*)
+>Oscar Piastri&Kimi Raikkonen&Lance Stroll&Daniel Ricciardo (*f1*)
 
 
 >Elliot Alderson (*Mr.Robot*)
