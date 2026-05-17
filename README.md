@@ -24,8 +24,6 @@
 >Oscar Piastri&Kimi Raikkonen&Lance Stroll&Daniel Ricciardo (*f1*)
 
 
->Elliot Alderson (*Mr.Robot*)
-
 
 >Mike Ehrmantraut (*Breaking Bad/Better Call Saul*)
 
