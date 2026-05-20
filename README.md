@@ -21,7 +21,7 @@
 >kinlist
 
 
->Oscar Piastri&Kimi Raikkonen&Lance Stroll&Daniel Ricciardo (*f1*)
+>Oscar Piastri&Kimi Raikkonen&Lance Stroll(Daniel Ricciardo&Ollie Bearman) (*f1*)
 
 
 
