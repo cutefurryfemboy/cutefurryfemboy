@@ -8,7 +8,7 @@
 ***
 
 
-# $\color{lightblue}{DNI/IWEC}$
+# $\color{darkred}{DNI/IWEC}$
 
 
 ### over 20 and under 13 if idk u  
