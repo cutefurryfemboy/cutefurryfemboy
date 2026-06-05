@@ -8,7 +8,7 @@
 ***
 
 
-# <code style="color:#F84C38;font-size:25px;">DNI / IWEC</code>
+# <code style="color: #FF0000; font-size: 22px;">DNI / IWEC</code>
 
 
 
