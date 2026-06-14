@@ -26,8 +26,12 @@
 >Oscar Piastri & Kimi Raikkonen & Lance Stroll(Daniel Ricciardo & Ollie Bearman) (*f1*)
 
 
+>-------------------------------------------------
 
->Mike Ehrmantraut (*Breaking Bad/Better Call Saul*)
+
+>typology 
+
+>(INTP-T 𝟿w𝟾 sp/so 𝟿𝟺𝟻 LEVF ILI мelancholic-рhlegmatic)
 
 
 
